@@ -8,7 +8,7 @@ Here's a glimpse into my journey:
 
 ## 🛠 Projects
 
-### *HOMELESS AND PUBLIC SERVICES*  
+### **TOURISIM**
 
 *OVERVIEW:* 
 1. Types of Tourism
